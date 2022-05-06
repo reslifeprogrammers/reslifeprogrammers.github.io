@@ -1,1 +1,0 @@
-# reslifeprogrammers.github.io
